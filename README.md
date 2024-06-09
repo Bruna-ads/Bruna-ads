@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil Bruna-ads 😁
+## Bem-vindo(a) ao perfil Bruna-ads ❤
 
  <div>
    <a href="https://github.com/bruna-ads">
